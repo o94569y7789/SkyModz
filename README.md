@@ -1,3 +1,3 @@
 SkyModz Official
 
-https://discord.gg/skymodz
+Join Our Discord!: https://discord.gg/skymodz
